@@ -3,7 +3,7 @@
 💻 Computer Science student at NYU<br/>
 🤞 Loves Open-Source contributing<br/>
 ✅ Currently working on contributing to SQLance <br/>
-🏉 InstagramPassion for rugby, bouldering, self-improvement
+🏉 Passion for rugby, bouldering, self-improvement
 
 
 ## 🌐 Socials:
