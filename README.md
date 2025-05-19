@@ -1,8 +1,8 @@
 ## Hi, I'm David 🌱
 
-💻 Computer Science student at NYU<br/>
+💻 CS/AI student at Columbia<br/>
 🤞 Loves Open-Source contributing<br/>
-✅ Currently working on contributing to SQLancer <br/>
+✅ Start-ups are the way to go<br/>
 🏉 Passion for rugby, bouldering, and sharpening the saw
 
 
