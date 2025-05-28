@@ -2,7 +2,7 @@
 
 💻 CS/AI student at Columbia<br/>
 🤞 Loves Open-Source contributing<br/>
-✅ Start-ups are the way to go<br/>
+✅ Shaping Vision <br/>
 🏉 Passion for rugby, bouldering, and sharpening the saw
 
 
